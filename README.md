@@ -1,2 +1,2 @@
 # Resume
-Here are some of my project and experience showcasing my expertise
+Here are some of my projects and experience showcasing my expertise
